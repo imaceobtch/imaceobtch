@@ -6,10 +6,8 @@
 
 **dev · cybersecurity enthusiast**  
 **copywriter · entrepreneur**  
-### i show up and get things done.
+### I show up and get things done.
 
-<br/>
-
-i also do kickboxing btw
+and i also do kickboxing btw
 
 </div>

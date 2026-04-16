@@ -5,6 +5,9 @@
 <br/>
 
 **dev · copywriter · cybersecurity enthusiast**
+
+<br/>
+
 **entrepreneur**  
 i show up and get things done.
 

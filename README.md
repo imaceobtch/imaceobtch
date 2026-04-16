@@ -4,7 +4,12 @@
 
 <br/>
 
-**dev · copywriter · entrepreneur**  
-i show up and close things.
+**dev · copywriter · cybersecurity enthusiast**
+**entrepreneur**  
+i show up and get things done.
+
+<br/>
+
+i also do kickboxing btw
 
 </div>

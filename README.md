@@ -4,7 +4,8 @@
 
 <br/>
 
-**dev · copywriter · cybersecurity enthusiast\ entrepreneur**
+**dev · copywriter · cybersecurity enthusiast**  
+**entrepreneur**  
 i show up and get things done.
 
 <br/>
